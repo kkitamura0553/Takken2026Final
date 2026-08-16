@@ -1,0 +1,1 @@
+rich past q & a
